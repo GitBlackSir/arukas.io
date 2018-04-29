@@ -1,1 +1,1 @@
-# aruksa.io
+# arukas.io
